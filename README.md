@@ -1,3 +1,5 @@
 # solomio2
- esta es la historia de un archivo que no se dejaba cambiar
- tra tratra
+Mejor cambio lo que decía
+me gusta la pizza :pizza:
+chau
+
